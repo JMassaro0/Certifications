@@ -1,3 +1,3 @@
 # Certifications
 Industry Certification &amp; MyCC Certifcations 
-(Back to school passef first class , more to come )
+(Back to school passed first class , more to come )
